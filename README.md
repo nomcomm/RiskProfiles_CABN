@@ -1,7 +1,7 @@
 Risk Profiles
 =============
 
-Profile Information for Schmaelzle, R. Imhof. M.A., Kenter, A., Renner, B, & Schupp, H.T. (2019). Impressions of HIV risk online: Brain potentials while viewing dating profiles. Cognitive, Affective, and Behavioral Neuroscience. [link](link) [External Link]
+Profile Information for Schmaelzle, R. Imhof. M.A., Kenter, A., Renner, B, & Schupp, H.T. (2019). Impressions of HIV risk online: Brain potentials while viewing dating profiles. Cognitive, Affective, and Behavioral Neuroscience. [link](https://www.psychonomic.org/page/CABN) 
 
 ***
 
