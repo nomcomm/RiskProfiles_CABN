@@ -5,7 +5,7 @@ Profile Information for Schmaelzle, R. Imhof. M.A., Kenter, A., Renner, B, & Sch
 
 ***
 
-<img align="right" width=250px src=profile.png> 
+<img align="right" width=350px src=profile.png> 
 
 
 ### Data
